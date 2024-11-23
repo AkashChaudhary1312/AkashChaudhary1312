@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Akash Chaudhary (@AkashChaudhary1312).
+- 👀 I'm a Graduate Student with major in Cybersecurity and Networks.
+- 📫 You can reach me out on my email akashchaudhary2@gmail.com
